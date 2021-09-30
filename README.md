@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MikkelAMadsen
+- 👀 I’m interested in Creating and Organising
+- 🌱 I’m currently learning To create a business
+- 📫 Email: MikkelM2571@gmail.com
